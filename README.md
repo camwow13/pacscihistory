@@ -2,5 +2,4 @@ This is an archived section of [tidbits.pacsci.org](https://web.archive.org/web/
 
 This is a more complete version of the tidbits website's museum exhibit photos than what was snapshotted on the Internet Archive.
 
-
-Special thanks to an anonymous redditor who made this archive and gifted it to me to preserve Dave's website and the many fun science center exhibits it documents. If you have a copy of the rest of his website I'd love to see the rest of his museum photos one day!
+Special thanks to an anonymous redditor who made this archive in 2016 and gifted it to me to preserve Dave's website and the many fun science center exhibits it documents. If you have a copy of the rest of his website I'd love to see the rest of his museum photos one day!
